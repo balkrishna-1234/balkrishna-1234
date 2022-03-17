@@ -10,3 +10,7 @@
 - 😄 Pronouns: HE/HIS
 - ⚡ Fun fact:  I Spend almost2-4 hours listening songs every day 
 
+   [![Visits Badge](https://badges.pufler.dev/visits/puf17640/git-badges)](https://badges.pufler.dev)
+
+
+
